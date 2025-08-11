@@ -25,7 +25,7 @@ This one was totally different from the first, but in a good way. She focused on
 
 ---
 
-Induction Report – Day 4
+### Day 4
 
 Day 4 was another “learn something new” kind of day. I attended two sessions—felt like the start of a fresh journey (even though it’s just an induction). The programme itself was chill as usual.
 
