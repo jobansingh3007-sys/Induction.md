@@ -13,7 +13,7 @@ After that all the students settled down in auditorium then at first we were add
 #### Day 2
 The second started with two proficiency tests i.e english and maths.The time given for each test was 50 minutes.After the proficiency tests,we had a expert lecture of Dr.Arashdeep singh on "Food:A pivotal role in human overall wellness" in the auditorium.He started his speech by explaining the importance of proper diet in a human's life.He also explained the various types of diet such as vegetarian diet, non-vegetarian diet and vegan diet.He explained the three diets in very simple manner.He concluded his speech by congratulating all of us for securing admission in this college.The speech was further followed by a session arranged by causmic club to spread awareness about their club.The session was basically with full information of the causmic club and explaining the doubts that how to join the club and also about the recruitment procedure of club.In the end,we were congratulated by club members on securing admission in the college and this was the end of day 2.
 
-#####Day 3
+##### Day 3
 Lecture 1 – Dr. Jaswinder Singh
 
 Dr. Jaswinder’s lecture was honestly pretty fun. The whole auditorium seemed to enjoy it and we got to learn quite a few things. He talked about his thoughts on God and science, and how somehow they connect in unexpected ways. Also, the math tricks he showed were mind-blowing. It wasn’t just the science or nature stuff—he had some wise life tips too. But the thing that really stood out was his crazy energy, like he could go on for hours without slowing down. He also cracked some jokes here and there which kept us awake. Overall, really good session, I walked out feeling smarter.
