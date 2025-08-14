@@ -37,3 +37,21 @@ Cosmic Club & Other Stuff
 
 We got introduced to one of GNE’s main clubs—the “Cosmic Club.” The members explained what they do, how it helps build teamwork, and the skills you can pick up if you join. It sounded pretty cool. After that, there were a couple of random but fun things: one sir explained how to choose the right laptop (helpful for anyone planning to get one), and then one student performed a song on guitar. I love how GNE always mixes learning with fun stuff—it keeps things interesting.
 
+## Induction day - 5 report
+One day 5, there were no induction programme activities, I believe this day was focused on introducing students to lectures, studies and teachers. Nevertheless, I had a great experience and one more time like always learned about amazing feats of GNE, we got introduced to other great teachers and subjects. We were immediately introduced to our new courses and other important details, most of the teachers instead of burdening us got friendly with us and prioritised introduction conversations and important tips as for college, to make us comfortable with the subject as soon as possible. The day ended with some lectures like I've talked about and some other activities and it was as always a fabulous day for us to learn
+
+## Induction day - 6 report
+The day started as normal but as the induction programme started, I was already feeling like new things to learn were there.
+
+Lecture by prof. Lakhvir singh
+Professor Lakhvir singh introduced us to CML where we can learn different things, and he tells about different things like joining CML and it was great, CML is obviously an opportunity to learn new things, to learn things like leadership, teamwork, management and even other significant skills. It is always great of GNE to tell us these different things and I always like it, at start it feels just out of blue and completely random but then it starts to make sense and why it's important, I'll definitely consider joining CML for sure.
+
+## Induction day - 7 report
+Starting introduction to different GNE facilities by Dr. Parminder singh
+Another great experience learning about GNE, as I would definitely require this valueable knowledge and I'm greatful for it.
+
+Lecture by Dr. Amit Kamra
+Another fabulous lecture given by and a fabulous introduction to one of the new clubs of DMC, though it was not much to those who don't want to join, but I'll definately consider it so I listened clearly and I was thrilled by the club like I've always been. DMC is basically Digital Marketing Club which also manages the social media of GNE and I think it is great of GNE for introducing this. Many students who want to aspire to be a successful person will definitely require DMC's skills. Although at the time, the club is small but I'm sure of it that it'll grow eventually.
+
+The last lecture on conduct of examination by Dr. Randhir Singh
+The last lecture was very informative. Dr. Randhir Singh not only explained the conduct of examinations in detail, including the rules, procedures, and guidelines to be followed, but also guided us through the official college website. He showed us how to access important sections such as notices, results, and academic resources. In addition, he provided information about mid-semester tests, assignments, and their submission processes, along with the evaluation criteria. The session was quite helpful in understanding the academic requirements and how to stay updated throughout the semester.
